@@ -1,1 +1,1 @@
-Ovo je 8. termin. aj Boze pomozi.
+Ovo je 8. termin. aj Boze pomozi.(al sto pre)
